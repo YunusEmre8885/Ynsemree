@@ -1,0 +1,2 @@
+# Ynsemree
+kod öğrenmek
